@@ -1,4 +1,4 @@
-<center><h1><b><em>Bri / Beetel</em></b></h1>
+<center><h1><b><em>Bri / Mato</em></b></h1>
 <p><b><em>minor</em></b> ⋆ <i>they xe fizz spark + <a href="https://en.pronouns.page/@bricrowave">more</i></p>
 <p><mark>pomoromantic ⋆ gender nonconforming</mark></p>
 <p><u>adhd ⋆ autism</u></p>
