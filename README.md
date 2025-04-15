@@ -1,7 +1,7 @@
 <center><h1><b><em>Bri / Brian</em></b></h1>
-<p><b><em>minor</em></b> ❖ <i>they them xe + <a href="https://en.pronouns.page/@bricrowave">more</i></p>
-<p><mark>unlabeled ❖ gender nonconforming</mark></p>
-<p><u>adhd ❖ autism ❖ bpd</u></p>
+<p><b><em>minor</em></b>⠀❖⠀<i>they them xe + <a href="https://en.pronouns.page/@bricrowave">more</i></p>
+<p><mark>unlabeled⠀❖⠀gender nonconforming</mark></p>
+<p><u>adhd⠀❖⠀autism⠀❖⠀bpd</u></p>
 
 <p>I LOVE SONEXE I LOVE SONEXE I LOVE SONEXE I LOVE SONEXE</p>
 
