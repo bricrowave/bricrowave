@@ -1,5 +1,5 @@
 <center><h1><b><em>Bri / Brian / Berdly / Kylie</em></b></h1>
-<p><b><em>7teen</em></b>⠀❖⠀<i>they them xe + <a href="https://en.pronouns.page/@bricrowave">more</i></p>
+<p><b><em>8teen</em></b>⠀❖⠀<i>they them none  + <a href="https://en.pronouns.page/@bricrowave">more</i></p>
 <p><mark>lesbian⠀❖⠀gender nonconforming</mark></p>
 <p><u>adhd⠀❖⠀autism</u></p>
 
